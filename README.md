@@ -4,7 +4,7 @@
 - 💞️ I want to find a foreign girlfriend.
 - 📫 Please contact me via email at my Google address: strongerer.me@gmail.com.
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: male virgin
 
 <!---
 japanFather/japanFather is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
